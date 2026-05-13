@@ -140,3 +140,18 @@ Suggestions and feedback are always welcome to improve the platform and user exp
 
 <img width="1037" height="637" alt="Screenshot 2026-05-13 155030" src="https://github.com/user-attachments/assets/8bfa6b9c-99cd-4208-8777-88d901638fba" />
 
+<img width="1100" height="648" alt="Screenshot 2026-05-13 182713" src="https://github.com/user-attachments/assets/1d18064a-2e1a-4a71-b381-37bab2929aef" />
+
+<img width="1061" height="637" alt="Screenshot 2026-05-13 182724" src="https://github.com/user-attachments/assets/b2d46422-30df-474b-bbe3-ceac5ba0e92c" />
+
+<img width="1043" height="593" alt="Screenshot 2026-05-13 182732" src="https://github.com/user-attachments/assets/6e33499e-bb21-4b84-85e2-35afbe43be00" />
+
+<img width="1075" height="647" alt="Screenshot 2026-05-13 182750" src="https://github.com/user-attachments/assets/dce13b70-b4ef-4a50-be0e-9c718634cc6c" />
+
+<img width="1108" height="638" alt="Screenshot 2026-05-13 182800" src="https://github.com/user-attachments/assets/af0478f2-83a1-400f-b77c-b6abedcf50f7" />
+
+
+
+
+
+
